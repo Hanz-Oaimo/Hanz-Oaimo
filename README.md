@@ -1,8 +1,13 @@
-- 👋 Hi, I’m @Hanz-Oaimo
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+@Hanz-oaimo || sc 
+
+Pkg***
+Pkg***
+Pkg***
+Git 
+Pyt 
+Run sc
+
+NOT FILE | BELUM UPLOAD SC 1 PUN🗿🗿
 
 <!---
 Hanz-Oaimo/Hanz-Oaimo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
